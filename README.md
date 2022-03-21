@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ranjithpothagani
-- 👀 I’m interested in ... (bleeding edge technologys...)
+- 👀 I’m interested in ... (bleeding edge technologies...)
 - 🌱 I’m currently learning ... (long list...)
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... ranjith.pothagani@aa.com or (269)365-5776
